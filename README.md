@@ -11,6 +11,6 @@ This job consisits of ensuring customer satisfaction and providing strong servic
 - Providing good customer service
 - Taking payments
 - Bussing tables
-- 
+
 
 
